@@ -2,8 +2,6 @@ Isso aqui é só uma conta aleatória criada
 sem propósito 
 
 15y 
-Nome: João Henrique 
+Nome: João Henrique
 
-
-
-![](https://tenor.com/pt-BR/view/joe-yabuki-ashita-no-joe-joe-laughing-crazy-gif-11741707501441650208)
+![](https://tenor.com/pt-BR/view/ashita-no-joe-joe-yabuki-eating-tomorrow's-joe-joe-gif-5617183282530212583)
